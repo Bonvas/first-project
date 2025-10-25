@@ -1,4 +1,4 @@
 ### first-project
-1234567890
+I want to be smart!)
 
 
